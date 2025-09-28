@@ -21,8 +21,4 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267794622/b7a2ac6
 
 ---
 
-work in progress • display typography • vector type set • scalable vector graphics • freely downloadable materials† • creative commons licensed† • by [Jimmy Ofisia](https://dsgn.lv)
-
-( † some are not, but most are )
-
 ### **☞** **<s>Download Type 05</s> (Coming Soon)**
