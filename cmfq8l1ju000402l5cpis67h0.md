@@ -15,8 +15,4 @@ The quick brown fox jumps over the lazy dog.
 
 ---
 
-work in progress • display typography • vector type set • scalable vector graphics • freely downloadable materials† • creative commons licensed† • by [Jimmy Ofisia](https://dsgn.lv)
-
-( † some are not, but most are )
-
 ### **☞** **<s>Download Type 01</s> (Coming Soon)**
