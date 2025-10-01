@@ -17,8 +17,6 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267828333/5d99bda
 
 ![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759306014336/686e4fd2-2903-4bc1-bc02-88ce65e12cd9.png align="center")
 
-![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759306751152/620880cd-3072-4c0f-b84d-795cd05501d0.png align="center")
-
 ---
 
 ### **☞** **<s>Download Type 07</s> (Coming Soon)**
