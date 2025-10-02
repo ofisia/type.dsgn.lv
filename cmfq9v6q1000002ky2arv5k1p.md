@@ -17,7 +17,7 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267828333/5d99bda
 
 ![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759306014336/686e4fd2-2903-4bc1-bc02-88ce65e12cd9.png align="center")
 
-![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759336638435/35f8416a-bc17-4103-8ad4-abc0135692b1.png align="center")
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759391057040/9e88f1a1-7bff-4eab-9e54-79b26c3874e7.png align="center")
 
 ![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759326623014/c91c59cf-7533-42cc-8621-782689b99345.png align="center")
 
