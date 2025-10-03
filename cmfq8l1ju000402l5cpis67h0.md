@@ -45,4 +45,4 @@ A bold, geometric font with rounded edges and a futuristic style. This font feat
 
 ---
 
-## → [**Download Type 01**](https://www.t26.com/fonts/5886-Chomsky)
+## → [**License Type 01**](https://www.t26.com/fonts/5886-Chomsky)
