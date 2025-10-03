@@ -11,6 +11,8 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267776836/6860744
 
 ---
 
+## → Preview
+
 ![type.dsgn.lv — Type 04: Minal — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758791671396/7cf7ee5f-c3c8-4d66-a39d-39ad78b68c89.png align="center")
 
 ![type.dsgn.lv — Type 04: Minal — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758791706499/bf8c8e6b-d30e-4d13-bc83-f941eb222b62.png align="center")
@@ -21,4 +23,28 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267776836/6860744
 
 ---
 
-### **☞** **<s>Download Type 04</s> (Coming Soon)**
+## → Information
+
+### Name
+
+Minal
+
+### Description
+
+…
+
+### Status
+
+Work In Progress
+
+### Version
+
+0.1
+
+### Format
+
+OTF
+
+---
+
+## → **<s>Download Type 04</s> (Coming Soon)**
