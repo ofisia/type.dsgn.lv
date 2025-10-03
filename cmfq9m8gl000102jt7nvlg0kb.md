@@ -11,6 +11,8 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267735217/1e70453
 
 ---
 
+## → Preview
+
 ![type.dsgn.lv — Type 03: Pxstncl — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758709118089/72358877-3e19-40d4-b952-45c0cfe5f542.png align="center")
 
 ![type.dsgn.lv — Type 03: Pxstncl — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758709097786/9050c3ae-ad71-47a5-9056-bfc5aa4d7c1a.png align="center")
@@ -19,4 +21,28 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267735217/1e70453
 
 ---
 
-### **☞** **<s>Download Type 03</s> (Coming Soon)**
+## → Information
+
+### Name
+
+Pxstncl
+
+### Description
+
+…
+
+### Status
+
+Work In Progress
+
+### Version
+
+0.1
+
+### Format
+
+EPS, PDF
+
+---
+
+## → **<s>Download Type 03</s> (Coming Soon)**
