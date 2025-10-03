@@ -45,7 +45,7 @@ EPS, PDF
 
 ### License
 
-Creative Commons and/or Commercial
+Creative Commons
 
 ---
 
