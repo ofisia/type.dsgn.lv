@@ -25,4 +25,28 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267828333/5d99bda
 
 ---
 
-### **☞** **<s>Download Type 07</s> (Coming Soon)**
+## → Information
+
+### Name
+
+Ridn
+
+### Description
+
+…
+
+### Status
+
+Work In Progress
+
+### Version
+
+0.1
+
+### Format
+
+EPS, PDF
+
+---
+
+## → **<s>Download Type 07</s> (Coming Soon)**
