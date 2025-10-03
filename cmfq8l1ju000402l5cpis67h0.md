@@ -35,7 +35,7 @@ Chomsky was created by Jimmy Ofisia in 2009. Jimmy was inspired to create Chomsk
 
 A bold, geometric font with rounded edges and a futuristic style. This font features bold, geometric shapes with rounded edges, creating a futuristic and playful appearance. The characters are uniformly thick, giving a strong and impactful look. Ideal for sci-fi themed designs, video game titles, posters, and branding that requires a modern and playful touch. (via [WhatFontIs](https://www.whatfontis.com/T26_Chomsky-Regular.font))
 
-Years after it was released, Chomksy accidentally share a name with an open source typeface designed by Fredrick Brennan, as explained in his readme file. (via [Github](https://github.com/ctrlcctrlv/chomsky?tab=readme-ov-file#notice-of-confusability-2021-09-05))
+Years after it was released, Chomksy accidentally share a name with an open source typeface designed by Fredrick Brennan, as explained in his Readme file. (via [Github](https://github.com/ctrlcctrlv/chomsky?tab=readme-ov-file#notice-of-confusability-2021-09-05))
 
 ### Status
 
