@@ -31,7 +31,7 @@ Aith
 
 ### Description
 
-…
+Aith is a monolinear display typeface loosely inspired by Thai typography.
 
 ### Status
 
