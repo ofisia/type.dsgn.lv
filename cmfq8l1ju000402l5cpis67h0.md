@@ -21,6 +21,28 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759408090893/0908d331-1c4b-45a6-a40c-42be6dd4ef23.png align="center")
 
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490903661/7e590f09-c781-425d-997f-205d8ef74510.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490907684/bdbbdd8c-d036-4f44-aa1c-24100134e98e.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490914036/1d017645-46be-41a9-a264-3a8716ae0e4f.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490919049/fa918d56-d181-44a0-9a9a-b73d6dc3186c.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490923668/b74669ad-1732-4d00-9b00-1df865276d8c.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490930326/7389d44e-b8e8-4668-be26-2d990b4d951b.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490935374/76949ac7-2c55-445f-a00c-a8fc60495cab.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490939119/a23344c3-207c-4c73-9aa5-6e072f89e5df.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490945377/15550375-5e86-4270-870e-e0560c964b30.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490951184/43ba81bf-336f-4db2-8a01-855a5e2ebcaf.jpeg align="center")
+
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490956502/f6628548-980b-4030-b4ab-73f72c134975.gif align="center")
+
 ---
 
 ## → Information
