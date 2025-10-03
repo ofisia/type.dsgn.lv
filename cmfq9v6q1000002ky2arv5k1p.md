@@ -75,6 +75,10 @@ Work In Progress
 
 EPS, PDF
 
+### License
+
+Creative Commons
+
 ---
 
 ## → **<s>Download Type 07</s> (Coming Soon)**
