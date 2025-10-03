@@ -35,7 +35,7 @@ Ridn
 
 ### Description
 
-Ridn is a grid based multi layered Latin Arabic Japanese Katakana display type loosely inspired by Wim Crouwel’s radical typography.
+Ridn is a grid based multi layered geometric Latin Arabic Japanese Katakana display type loosely inspired by Wim Crouwel’s radical typography.
 
 ### Status
 
