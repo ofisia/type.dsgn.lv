@@ -43,6 +43,10 @@ Work In Progress
 
 EPS, PDF
 
+### License
+
+Creative Commons and/or Commercial
+
 ---
 
 ## → **<s>Download Type 02</s> (Coming Soon)**
