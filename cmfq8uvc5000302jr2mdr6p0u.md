@@ -25,7 +25,7 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758645049769/758ad54
 
 ### Name
 
-…
+Salutei
 
 ### Description
 
