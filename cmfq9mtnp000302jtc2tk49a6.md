@@ -45,6 +45,10 @@ Work In Progress
 
 OTF
 
+### License
+
+Creative Commons
+
 ---
 
 ## → **<s>Download Type 04</s> (Coming Soon)**
