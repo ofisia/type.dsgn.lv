@@ -11,10 +11,6 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ---
 
-xxx
-
----
-
 ## → Preview
 
 ![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759464728396/6fce53ba-0bb5-425e-a230-e30e336d60ca.png align="center")
@@ -33,4 +29,4 @@ The quick brown fox jumps over the lazy dog.
 
 ---
 
-### **☞** [**Buy Type 01: Chomsky**](https://www.t26.com/fonts/5886-Chomsky)
+## → [**Buy Type 01: Chomsky**](https://www.t26.com/fonts/5886-Chomsky)
