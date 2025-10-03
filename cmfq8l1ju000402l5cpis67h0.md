@@ -11,11 +11,11 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ---
 
-![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759408048956/820739b7-a8ee-4900-8268-e43a11834dbe.png align="center")
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759464728396/6fce53ba-0bb5-425e-a230-e30e336d60ca.png align="center")
 
-![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759408058164/b2671725-78fc-4713-904e-ce87ec6b5747.png align="center")
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759464745695/1ef191ac-bc8b-4e12-9cb4-06ac8c9c74b3.png align="center")
 
-![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759408071570/abdb8fe9-9eae-4514-abfd-b3b09e8419e6.png align="center")
+![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759464756303/eb34e18c-e837-4d3e-b394-c860a2bae943.png align="center")
 
 ![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759408090893/0908d331-1c4b-45a6-a40c-42be6dd4ef23.png align="center")
 
