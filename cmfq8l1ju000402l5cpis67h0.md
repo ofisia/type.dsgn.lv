@@ -35,7 +35,7 @@ Chomsky
 
 ### Status
 
-Finished
+Finalized
 
 ### Description
 
