@@ -31,7 +31,9 @@ Chomsky
 
 ### Description
 
-Chomsky was created by Jimmy Ofisia in 2009. Jimmy was inspired to create Chomsky, which contains 10 fonts, by his favorite Beastie Boys record album, “Hello Nasty”. The typeface is ideal for large-sized, all-caps, display titling or headlines, or anywhere that a fancy and funky look or feel is called for. Chomsky's OpenType features include ligatures, fractions, superscript and scientific inferior.
+Chomsky was created by Jimmy Ofisia in 2009. Jimmy was inspired to create Chomsky, which contains 10 fonts, by his favorite Beastie Boys record album, «Hello Nasty.» The typeface is ideal for large-sized, all-caps, display titling or headlines, or anywhere that a fancy and funky look or feel is called for. Chomsky's OpenType features include ligatures, fractions, superscript and scientific inferior. (via [T26](https://www.t26.com/fonts/5886-Chomsky))
+
+A bold, geometric font with rounded edges and a futuristic style. This font features bold, geometric shapes with rounded edges, creating a futuristic and playful appearance. The characters are uniformly thick, giving a strong and impactful look. Ideal for sci-fi themed designs, video game titles, posters, and branding that requires a modern and playful touch. (via [WhatFontIs](https://www.whatfontis.com/T26_Chomsky-Regular.font))
 
 ---
 
