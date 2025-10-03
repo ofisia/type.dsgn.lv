@@ -21,4 +21,4 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ---
 
-### **☞** **<s>Download Type 01</s> (Coming Soon)**
+### **☞** [**Buy Type 01: Chomsky**](https://www.t26.com/fonts/5886-Chomsky)
