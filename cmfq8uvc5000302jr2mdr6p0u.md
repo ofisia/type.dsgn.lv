@@ -11,6 +11,8 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758645049769/758ad54
 
 ---
 
+## → Preview
+
 ![type.dsgn.lv — Type 02: Salutei — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758643260903/bfc650bd-f82a-4b7e-b77f-645e60a4e596.png align="center")
 
 ![type.dsgn.lv — Type 02: Salutei — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758643761364/62d2839d-3ef8-4229-b21a-31f8d4e2eb5e.png align="center")
@@ -19,4 +21,28 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758645049769/758ad54
 
 ---
 
-### **☞** **<s>Download Type 02</s> (Coming Soon)**
+## → Information
+
+### Name
+
+…
+
+### Description
+
+…
+
+### Status
+
+Work In Progress
+
+### Version
+
+0.1
+
+### Format
+
+EPS, PDF
+
+---
+
+## → **<s>Download Type 02</s> (Coming Soon)**
