@@ -33,7 +33,7 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490930326/7389d44e-b8e8-4668-be26-2d990b4d951b.jpeg align="center")
 
-![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490935374/76949ac7-2c55-445f-a00c-a8fc60495cab.jpeg align="center")
+[![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490935374/76949ac7-2c55-445f-a00c-a8fc60495cab.jpeg align="center")](https://www.t26.com/fonts/5886-Chomsky)
 
 ![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759490939119/a23344c3-207c-4c73-9aa5-6e072f89e5df.jpeg align="center")
 
