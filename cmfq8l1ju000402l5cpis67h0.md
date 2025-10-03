@@ -25,11 +25,11 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ## → Information
 
-### Type Name:
+### Name:
 
 Chomsky
 
-### Type Description:
+### Description:
 
 Chomsky was created by Jimmy Ofisia in 2009. Jimmy was inspired to create Chomsky, which contains 10 fonts, by his favorite Beastie Boys record album, “Hello Nasty”. The typeface is ideal for large-sized, all-caps, display titling or headlines, or anywhere that a fancy and funky look or feel is called for. Chomsky's OpenType features include ligatures, fractions, superscript and scientific inferior.
 
