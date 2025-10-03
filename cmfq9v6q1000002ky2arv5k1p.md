@@ -25,6 +25,30 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267828333/5d99bda
 
 ![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759404659506/4b0d8a3c-5130-40a2-83e7-ef343f53c400.png align="center")
 
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491847218/720ed196-81d6-4751-951f-52634ce09b74.webp align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491865041/3ef0c8b5-4c7e-40d7-b86a-84465e13e12e.gif align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491869089/c26de471-688a-4d4b-894b-80ae3a95bdc3.webp align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491872750/2a33e7f8-c2c2-46c5-9c45-f2b8ad62f530.webp align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491876957/6e5163ee-74cd-43e0-a9bd-46058978db6c.jpeg align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491881151/ae483c53-e91b-4bc1-bd81-48441d5fb82d.webp align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491887270/6bfe460a-2bc1-4e30-85f0-5a7f5a5a60bf.jpeg align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491891722/473a8018-532d-4cf6-823f-f8670ccb7738.webp align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491896762/4aaee1a3-e91d-4988-8ef6-d9458bad71ef.gif align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491901916/7766a295-cfe1-4871-9cb8-0bd5aa4b4b9e.png align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491906480/08f9a9b6-7cc2-46d1-b18c-9701ba474086.webp align="center")
+
+![type.dsgn.lv — Type 07: Ridn — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759491911668/14dba11b-60f5-4bd1-a772-4ab57eac3b6f.png align="center")
+
 ---
 
 ## → Information
