@@ -31,7 +31,7 @@ Minal
 
 ### Description
 
-…
+Minal is monolinear curveless strict angled cursive display typeface.
 
 ### Status
 
