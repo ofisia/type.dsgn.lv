@@ -29,7 +29,7 @@ Salutei
 
 ### Description
 
-Salutei is a pixel oriented display type loosely inspired by Soviet Constructivist typography.
+Salutei is a pixel oriented grid based display type loosely inspired by Soviet Constructivist typography.
 
 ### Status
 
