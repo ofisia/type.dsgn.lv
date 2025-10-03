@@ -11,6 +11,8 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267794622/b7a2ac6
 
 ---
 
+## → Preview
+
 ![type.dsgn.lv — Type 05: Aith — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758864397985/ccfd91cd-266b-4747-a0e3-6a311a3180b6.png align="center")
 
 ![type.dsgn.lv — Type 05: Aith — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758864411435/a8170456-9445-4087-a4cd-f67d9d0cfb45.png align="center")
@@ -21,4 +23,28 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267794622/b7a2ac6
 
 ---
 
-### **☞** **<s>Download Type 05</s> (Coming Soon)**
+## → Information
+
+### Name
+
+Aith
+
+### Description
+
+…
+
+### Status
+
+Work In Progress
+
+### Version
+
+0.1
+
+### Format
+
+EPS, PDF
+
+---
+
+## → **<s>Download Type 05</s> (Coming Soon)**
