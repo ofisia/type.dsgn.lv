@@ -29,7 +29,7 @@ Pxstncl
 
 ### Description
 
-Pxstncl is a pixel oriented stencil styled display type loosely inspired by Nikon FM10 camera logo.
+Pxstncl is a pixel oriented grid based stencil styled display type loosely inspired by Nikon FM10 camera logo.
 
 ### Status
 
