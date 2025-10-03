@@ -71,6 +71,10 @@ Finalized
 
 OTF, WOFF
 
+### License
+
+Commercial
+
 ---
 
-## → [**License Type 01**](https://www.t26.com/fonts/5886-Chomsky)
+## → [**Download Type 01**](https://www.t26.com/fonts/5886-Chomsky)
