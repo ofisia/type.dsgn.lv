@@ -11,7 +11,7 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267605061/f8c3a50
 
 ---
 
-## → Previews
+## → Preview
 
 ![type.dsgn.lv — Type 01: Chomsky — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759464728396/6fce53ba-0bb5-425e-a230-e30e336d60ca.png align="center")
 
