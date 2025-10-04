@@ -19,6 +19,8 @@ cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1758267794622/b7a2ac6
 
 ![type.dsgn.lv — Type 05: Aith — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758901753541/c8f6ebda-94fb-4415-b34f-61b7c92f88d9.png align="center")
 
+![type.dsgn.lv — Type 05: Aith — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1759576222408/5e50e780-ecef-453b-972a-341fb216c80f.png align="center")
+
 ![type.dsgn.lv — Type 05: Aith — by Jimmy Ofisia](https://cdn.hashnode.com/res/hashnode/image/upload/v1758864413955/b7f04e41-d527-464e-a1cb-67424dcb7af0.png align="center")
 
 ---
