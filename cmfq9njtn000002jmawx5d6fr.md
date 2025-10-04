@@ -53,4 +53,4 @@ Creative Commons
 
 ---
 
-## → **<s>Download Type 05</s> (Coming Soon)**
+## → [**Download Type 05**](https://folder.dsgn.lv/b/type05)
