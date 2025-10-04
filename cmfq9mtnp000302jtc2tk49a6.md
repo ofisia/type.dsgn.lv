@@ -51,4 +51,4 @@ Creative Commons
 
 ---
 
-## → **<s>Download Type 04</s> (Coming Soon)**
+## → [**Download Type 04**](https://folder.dsgn.lv/b/type04)
