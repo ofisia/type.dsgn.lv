@@ -49,4 +49,4 @@ Creative Commons
 
 ---
 
-## → **<s>Download Type 02</s> (Coming Soon)**
+## → [**Download Type 02**](https://folder.dsgn.lv/b/type02)
