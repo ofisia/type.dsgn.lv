@@ -81,4 +81,4 @@ Creative Commons
 
 ---
 
-## → **<s>Download Type 07</s> (Coming Soon)**
+## → [**Download Type 07**](https://folder.dsgn.lv/b/type07)
